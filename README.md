@@ -1,2 +1,2 @@
 # Daesik
-Korean Name
+dakwon@chapman.edu
